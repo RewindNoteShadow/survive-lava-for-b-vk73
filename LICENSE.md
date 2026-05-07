@@ -1,4 +1,4 @@
-
+Experience survive lava for brainrots like never before with elite survive lava for brainrots Scripts, the #1 Script. Includes teleport and
 
 
 
